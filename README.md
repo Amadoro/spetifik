@@ -1,1 +1,4 @@
 # spetifik
+sport
+sexual
+year
